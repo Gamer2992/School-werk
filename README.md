@@ -1,6 +1,7 @@
-# oke jongens 
-nu is het zover
-het moment is daar
-nu word het wild
-nu gaan we loco
-lets hit it
+# Oké jongens 
+Nu is het zover
+Het moment is daar
+Nu word het wild
+Nu gaan we loco
+Lets hit it
+ricardo
